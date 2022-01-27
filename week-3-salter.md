@@ -1,4 +1,4 @@
-#Week 3 Assignment
+# Week 3 Assignment
 
 There are many kinds of tools for art. Depending on the work, there are times that the tools could be used as part of the medium to complete the artwork. For example, a computer is used as a tool for digital artworks, but it can be part of the art as well by being used to observe or interact with the work. Another example could be using a digital camera. Most people use cameras as a tool to take photos for their artworks, while some people use a camera for a different medium.
 
