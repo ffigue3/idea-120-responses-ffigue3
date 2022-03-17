@@ -1,0 +1,1 @@
+From what I could understand about non-linear narratives is that they’re like stories that have multiple different out comes. The non-linear narrative that I’m planning to make will be inspired by one of my own stories that I personally wrote. The story might give off a sense of problem solving and the main character’s attempt to understand others.
