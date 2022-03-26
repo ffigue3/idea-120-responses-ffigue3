@@ -1,0 +1,7 @@
+There can multiple improvements in videogame making, when everyone has access to gaming. If everyone has the chance to play the same game, some people might notice details about the game that others don’t. If it is possible that there are games that contains nearly impossible levels that only a few people can figure out, then it could be possible that there are people who can figure out how the game can be improved or be more interesting.
+
+There can be multiple improvements in modern videogames, when everyone has access to the knowledge of coding. When putting it in an artistic point of view, if everyone has access to coding, there are countless possibilities that people can possess. Once people fully understand coding, they can use that knowledge to create new games, experiment with digital art, make new animated images, etc.
+
+If a large number of people participate in creating games, it can be possible for games that have the ability to influence people to be openminded will be created. Since there are some games that are inspired by history, cultural events, nature, etc., the possibility of many people being able to create games that are both exciting, educational, and fun are in reach.
+
+There are other forms of media that require the same creation tools that are used to make games. A lot of modern-day artworks are created digitally, like the designs and logos we see every day. Another example can be the television shows, movies, and videos we watch. They always require knowledge of using digital tools.
