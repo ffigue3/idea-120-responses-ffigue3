@@ -1,0 +1,5 @@
+Along with writing stories, playing songs, and filming videos for YouTube, there are a lot of people who enjoy creating games. Unlike prewritten stories, songs, and most films, games are always interactive for the player(s). Depending on the creator’s design, games can be played as either just a single player, multi-player, or both a single and multi-player games.
+
+Not all games are created digitally. There are tons of games that doesn’t require a screen. The games that don’t need a screen are sports, bord games, card games, hide and seek, tag, etc. Most of these games have been evolving through the years and adapt to other cultures. Despite the changes in the rules or the games themselves, the basics always stay the same. In the reading, it mentioned how the rules of tag has change, but the primary rule, like chasing someone and/or being chased, remain the same.
+
+Even though playing or doing something on your own may seem nice and okay, but there are often people who prefer doing things with others. While putting that thought in to consideration, it’s another reason why there are people who enjoy making games that can also be for more than one player.
