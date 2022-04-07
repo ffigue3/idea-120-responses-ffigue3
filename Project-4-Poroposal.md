@@ -1,0 +1,1 @@
+For my portfolio, I will start with inserting screenshots and/or a link to my Project 1 website. Next, I will post photos that was used for my Project 2 video in the portfolio. The photos will be arranged in the same order as the video. Then, I will either insert a link and/or post screenshots of different parts of my Project 3 in the portfolio.
